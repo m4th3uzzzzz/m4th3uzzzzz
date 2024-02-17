@@ -23,4 +23,8 @@ Você pode me encontrar nas seguintes redes sociais:
 - [Instagram](https://www.instagram.com/m4th3uzzzz?igsh=MW0waWp0ODhnNXUydw==)
 - [Facebook](https://www.facebook.com/profile.php?id=61556655323779&mibextid=ZbWKwL) 
 
-Obrigado por visitar o meu perfil. Espero que você tenha gostado. 😊
+Obrigado por visitar o meu perfil. Espero que você tenha gostado e...
+
+<img src="https://github.com/m4th3uzzzzz/m4th3uzzzzz/assets/159437393/ff918549-a6bf-4a93-bbf4-8149027aaf15" width="150px" /> </div> 
+
+salve o curintiaaaa
